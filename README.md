@@ -1,6 +1,6 @@
 # williams intro
-<br/> ineed friends in the same fandoms as me who are always online on pony town ,,, i only have 1 friend on ponytown and ive been playing since 2024
-<br/> 
+<br/> bmf !!
+<br/>
 <br/> im william hello
 <br/>
 <br/> im **14** (people over 18 or under 9 DNI/IWEC)

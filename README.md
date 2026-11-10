@@ -1,7 +1,7 @@
-# williams intro
+# wynns intro
 <br/> bmf !!
 <br/>
-<br/> im william hello
+<br/> im wynn hello
 <br/>
 <br/> im **14** (people over 18 or under 9 DNI/IWEC)
 <br/>
@@ -18,3 +18,4 @@
 <br/> **FANDOMS: BUNCH OF FRIENDS (hanbon is my bias), POKEMON, DELTARUNE, DANDYS WORLD, MCYT (the lifesteal/uusmp side of the mcyt)**
 <br/> 
 <br/> **FAV MUSIC ARTISTS:** nirvana, alex g
+<br/> I AM WORKING ON MAKING THIS PAGE BETTER I SWEAR OKAYY
